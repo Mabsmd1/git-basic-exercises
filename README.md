@@ -1,2 +1,1 @@
-Amazing
-Cooooooooool!
+booya
